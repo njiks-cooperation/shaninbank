@@ -1,0 +1,3 @@
+i love the nation cameroon but there is so much killing going on...
+
+but i must become an American
